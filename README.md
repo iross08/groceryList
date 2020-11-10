@@ -1,8 +1,8 @@
 # Grocery lists
 
-* borboti
-* sim
-* fulcopy
-* motorshuti
+- [ ] sim
+- [ ] motorshuti
+- [ ] pringles chips
+- [ ] carrot
 
 :)
