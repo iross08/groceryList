@@ -1,7 +1,8 @@
 # Grocery lists
 
 - [ ] motorshuti
-- [ ] pringles chips
 - [ ] carrot
+- [ ] aluminium foil
+- [ ] refrigerator - bottom freezer
 
 :)
