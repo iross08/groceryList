@@ -32,7 +32,9 @@ moha-mad
 > ami hobo sokal belar pakeee + fuze nai kew janle, hobe sob somman hani
 
 all others
-> aaaga gula jedike jai - picha gula to sedike jabei - bhujhla rohimar baap - sob papi + putki-teese
+> aaaga gula jedike jai - picha gula to sedike jabei - bhujhla rohimar baap - sob papi + putki-teese + aaagha ken je fola fola ar gora je chikon pore bhujhba 
+
+
 
 
 :)
